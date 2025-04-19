@@ -200,4 +200,11 @@ https://docs.google.com/document/d/1ZG_nE2o0-DNdBJYI9OmBZAd0k4gOm_NZ/edit?usp=dr
 ![enter image description here](https://i.sstatic.net/KnaYLXtG.jpg)
 https://docs.google.com/document/d/1K-qsehmjHUvnrDwCRe7P7XadDzZVN1SN/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
 
-https://rentry.co/p27k4gkr
+# And this is for the PowerPoint of the political party report made by AI 👇:
+![enter image description here](https://i.sstatic.net/Q3r0CdnZ.jpg)
+
+### https://www.slidespilot.com/s/p/5znRG61ZMN
+
+
+
+## https://rentry.co/p27k4gkr
